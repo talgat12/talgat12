@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @talgat12
+- 👋 Hi, I’m Talgat Hussain
 - 👀 I’m interested in playing games
 - 🌱 I’m currently learning B. Tech ( CSE) 
 - 💞️ I’m looking to collaborate on 🤩🤩
